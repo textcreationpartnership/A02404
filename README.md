@@ -36,16 +36,22 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A firme aliance & agreement made betvveene his Ma[ies]tie the King of Svvethland on the one side: an
+
 #####Body#####
 
-1. And for our Parte wee Bogis Laus Dukes of Pomer and Statin, call to minde theſe Agrevances.
+1. ARTICLES Agreed on betweene the Kings Matie of Svvethland on the one ſide, & his grace the Duke of Pommerland on theother ſide, according to the Lands Reſolution, lately accorded and Concluded.
+
+    _ And for our Parte wee Bogis Laus Dukes of Pomer and Statin, call to minde theſe Agrevances.
 
 #####Back#####
 
-1. Caeſars Letter.
+1. An Appendix, or Memoriall of the heads and chiefe Aggrevances, vvhich vvas preſented by his grace the Duke of Statin and Pomerland, vnto the Lord Iulian the King of Swethlands Commiſſarie Generall Anno 1630.
 
-1. The King of Svvethen his anſvvere.
+1. A Letter of Ferdinand the Roman Emperour to the moſt Illuſtrious King of Svvethen Guſtavus Adolphus, &c. tranſlated out of Latine into Engliſh.
+
+    _ Caeſars Letter.
+
+    _ The King of Svvethen his anſvvere.
 
 **Types of content**
 
